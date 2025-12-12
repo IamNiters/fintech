@@ -1,0 +1,2 @@
+# fintech
+Tantine fintech communautaire
